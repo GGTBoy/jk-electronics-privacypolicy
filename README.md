@@ -1,0 +1,2 @@
+# jk-electronics-privacypolicy
+用户协议，隐私政策
